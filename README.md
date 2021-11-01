@@ -1,4 +1,5 @@
-#### ✯ [M̑̈ȓ̈ Ȋ̈H̑̈S̑̈Ȃ̈N̑̈](https://www.facebook.com/unknownXX007)
+
+
 
 ## 𝐂𝐑𝐀𝐂𝐊 𝐖𝐈𝐓𝐇 𝐌𝐄𝐓𝐀 
 
