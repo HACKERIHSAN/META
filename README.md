@@ -1,3 +1,6 @@
+### ✯ [M̑̈ȓ̈ Ȋ̈H̑̈S̑̈Ȃ̈N̑̈](https://www.facebook.com/unknownXX007)
+
+![CarefreeWhiteEnglishsetter-size_restricted](https://user-images.githubusercontent.com/79760783/138608184-8d2dcb11-37e9-4d3a-9540-9a49493935b9.gif)
 
 
 
@@ -27,4 +30,4 @@
 ##### $ python META.py
 
 ##### ⇨ Screenshot
-
+![Screenshot_20211102-020224](https://user-images.githubusercontent.com/79760783/139742369-e8ba328a-1fdd-4b7b-9a29-af13c3239dda.png)
